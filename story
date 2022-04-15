@@ -1,0 +1,2 @@
+Another animal in the jungle bet the hare that he could not beat the tortoise in a race. Then the hare and tortoise start the race. 
+The hare quickly rushed ahead and hopped far ahead while the tortoise took its time.
